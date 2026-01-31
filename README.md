@@ -1,2 +1,2 @@
 # UndanganPernikahanRifa
-Ini Adalah Ungangan Pernihakan Rifa Dan Bilal
+Ini Adalah Undangan Pernihakan Rifa Dan Bilal
